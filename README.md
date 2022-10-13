@@ -1,4 +1,4 @@
-- 👋 Hi, I’m petermbear
+- 👋 Hi, I’m petermbear. You can call me Eason or Xu Yichen
 - 👀 I’m interested in video game, movie, music, soccer, etc.
 - 🌱 I’m currently learning Canada BC education, grade 12
 - 💞️ If you also like what I like, you can contact me
